@@ -1,4 +1,4 @@
-Get Accounts in Fortnite 2025 Android und iOS**
+# **[08 Seconds]Free Fortnite Accounts Generator 2025: Get Account for Fortnite IOS/Android**
 
 
 ### [CLICK HERE TO GET FREE](https://lookerstudio.google.com/s/jzobrV9RiaM)
