@@ -1,4 +1,4 @@
-# **{{#8-Seconds# Free Fortnite Accounts Generator 2025: Get Account for Fortnite IOS/Android**
+# **{{#8-Seconds# Free Fortnite Accounts Generator 2025: Get Account for Fortnite IOS/Android **
 
 
 ### [CLICK HERE TO GET FREE](https://lookerstudio.google.com/s/jzobrV9RiaM)
